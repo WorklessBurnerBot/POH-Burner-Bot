@@ -15,7 +15,6 @@ Also add a new account to sign back in with.
 
 Note: You must have coins, marrentils, tinderbox in your inventry!
 
-
-This is the bot workless uses to light his burners, please share it around and use it and make your quick and easy 330 gp!
+This is the bot workless uses to light his burners, please share it around and use it and make your quick and easy 330 gp and feel free to use it in any world!
 
 
