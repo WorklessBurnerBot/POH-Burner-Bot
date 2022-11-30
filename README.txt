@@ -18,3 +18,4 @@ Note: You must have coins, marrentils, tinderbox in your inventry!
 This is the bot workless uses to light his burners, please share it around and use it and make your quick and easy 330 gp and feel free to use it in any world!
 
 
+Message to jagex: Make the burners host only and this problem is solved, but since you don't want I guess everyone can start using workless tool for their own gain.
